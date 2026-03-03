@@ -1,2 +1,1 @@
-trabalho escravo
-ykkuui
+professor Daniel o melhor
