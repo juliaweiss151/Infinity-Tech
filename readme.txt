@@ -1,1 +1,1 @@
-ok ola flamengo continua fraco
+trabalho escravo
