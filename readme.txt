@@ -1,2 +1,2 @@
 joao chato
-geovanna é pior
+geovanna é melhor
